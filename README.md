@@ -1,0 +1,2 @@
+# ddosDyka
+Dont abuse
